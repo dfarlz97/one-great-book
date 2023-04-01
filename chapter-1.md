@@ -1,4 +1,4 @@
-Yes, if you make it look like an electrical fire. When you do things right, people won't be sure you've done anything at all.
+Yes, if you make it look like an accidental electrical fire!! When you do things right, people won't be sure you've done anything at all...
 Oh right. I forgot about the battle. Yeah. Give a little credit to our public schools. And from now on you're all named Bender Jr. Hey, guess what you're accessories to.
 
 Yes, I saw. You were doing well, until everyone died. Okay, I like a challenge. The alien mothership is in orbit here. If we can hit that bullseye, the rest of the dominoes will fall like a house of cards. Checkmate.
